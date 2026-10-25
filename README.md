@@ -1,0 +1,2 @@
+# KABUL-PAY
+Afghan walit
